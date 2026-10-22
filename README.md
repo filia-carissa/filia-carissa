@@ -1,4 +1,4 @@
-# Hi, I'm anomaly-4rc.
+# Hi, I'm Filia^Carissa`♡.
 
 > **Electronics Student / Hardware & Science Enthusiast**  
 > *Fascinated by everything from quantum mechanics to cosmic scale physics. Learning Linux & Android low-level internals one tweak at a time.*
